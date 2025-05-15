@@ -1,0 +1,1 @@
+# studiu-autodidacticism-autoeficacitate-amanarea-recompensei-locus-of-control

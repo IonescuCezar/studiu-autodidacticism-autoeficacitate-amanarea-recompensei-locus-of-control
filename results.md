@@ -1,4 +1,4 @@
-# Autodidacticism (învățare autodirecționată), autoeficacitate generală și capacitatea de amânare a recompensei
+# Relațiile dintre autoeficacitate generală, capacitatea de amânare a recompensei și autodidacticism (învățare autodirecționată)
 
 
 ### Definire termeni
